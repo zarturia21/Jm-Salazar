@@ -12,4 +12,3 @@ ____________
 DANGAS KA
 TANGKAG KA
 KARON RON
-BAYOT KA.
