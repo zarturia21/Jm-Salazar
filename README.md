@@ -7,8 +7,4 @@ ____________
 App2 MY Copy
 ____________
 App3 PAWS
-____________
-
-DANGAS KA
-TANGKAG KA
-KARON RON
+___________________
