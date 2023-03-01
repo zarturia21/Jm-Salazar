@@ -10,3 +10,4 @@ App3 PAWS
 ____________
 
 DANGAS KA
+TANGKAG KA
