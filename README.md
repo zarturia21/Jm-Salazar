@@ -1,3 +1,4 @@
+
 # Jm-Salazar
 Jm Tutor
 Jm Salazar
@@ -8,3 +9,17 @@ App2 MY Copy
 ____________
 App3 PAWS
 ___________________
+____________
+
+DANGAS KA
+TANGKAG KA
+KARON RON
+BAYOT KA
+MIKEYYYYY
+JAIIIIIIIII
+________________
+.
+
+BWALALALALA
+
+AMBOT
