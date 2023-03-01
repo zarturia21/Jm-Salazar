@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+
 # Jm-Salazar
 Jm Tutor
 Jm Salazar
@@ -18,6 +18,7 @@ MIKEYYYYY
 JAIIIIIIIII
 ________________
 .
-=======
+
 BWALALALALA
->>>>>>> 249e1b2ca28822a44d3a98f8230278198e0251ed
+
+AMBOT
